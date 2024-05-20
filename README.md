@@ -1,0 +1,1 @@
+That a simple frontend tamplate i applied it form Eng_Osama ELzero Course and that is playlist link for this tamplate https://youtube.com/playlist?list=PLDoPjvoNmBAzHSjcR-HnW9tnxyuye8KbF&si=QjN1oTBxJnjcnAFW
